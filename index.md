@@ -1,5 +1,6 @@
 # Given name James - meaning, history and popularity around the world 
 
+
 # Popularity
 ## England
 James was not popular in England in the late Middle Ages, with only having 1 in every 500 people using the name. However, it moved up to a tenth position in 1538 and continued to grow in popularity through the end of the century. Its success has been said to start with James Stuart's accession to the English throne in 1603, but it is more likely due to the disciples of that name or the cult of St James of Compostella.
