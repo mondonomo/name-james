@@ -1,3 +1,4 @@
+![image](/James.jpg)
 - Why is the name James so popular?
   - There are several reasons why the name James is so popular. One reason is that it is a translation of the name Jacob, which is a widespread name for boys. Another reason is that it is a Biblical name, and two of Jesus' apostles were named James. Finally, the name James has Scottish roots, and it became more popular when King James VI took the English throne in the 17th century.
 - How popular the name James was in England?
@@ -18,3 +19,5 @@
   - "I hate American simplicity. I glory in the piling up of complications of every sort. If I could pronounce the name 'James' in any different or more elaborate way I should be in favor of doing it." — Henry James
 - Which of the U.S. presidents were named James?
   - U.S. Presidents named James were James Madison, James Polk, James Buchanan, and James Monroe.
+- What are good siblings name for James?
+  -  Jacob could be confused with 'Jacobus' for James, and Jeremiah or Jeremy with Jerome, the name of a saint. The frequent use of the initial 'J' may be coincidental but it is  noticeable how often siblings were given these names and the impression is  that some parents were influenced by the alliteration.
