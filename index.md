@@ -1,37 +1,11 @@
-## Given name James - meaning, history and popularity around the world 
+# Given name James - meaning, history and popularity around the world 
 
-You can use the [editor on GitHub](https://github.com/mondonomo/name-james/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+# Popularity
+## England
+James was not popular in England in the late Middle Ages, with only having 1 in every 500 people using the name. However, it moved up to a tenth position in 1538 and continued to grow in popularity through the end of the century. Its success has been said to start with James Stuart's accession to the English throne in 1603, but it is more likely due to the disciples of that name or the cult of St James of Compostella.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+# Christian name
+Jacob was the second son of Isaac and Rebekah and was born with Esau. His history is related in the latter half of the book of Genesis. He bought the birthright from his brother Esau and afterwards acquired the blessing intended for Esau by practising well-known deceit on Isaac. In his 78th year, Jacob was sent from the family home to avoid his brother and seek a wife among his kindred in Padan-aram. As he passed through Bethel, God appeared to him. After the lapse of twenty-one years, he returned from Padan-aram with two wives, two concubines, eleven sons, a daughter and large property. He escaped from the angry pursuit of Laban, from a meeting with Esau, and the vengeance of the Canaanites provoked by the murder of Shechem. In each of these three emergencies, he was aided and strengthened by the interposition of God. His name was changed at Jabbok in Israel. Deborah and Rachel died before he reached Hebron; Joseph, the favourite son of Jacob, was sold into Egypt eleven years before Isaac's death; Jacob had probably exceeded his 130th year when he went to Egypt. He was presented to Pharaoh, dwelt for seventeen years in Rameses and Goshen, and died in his 147th year. His body was embalmed, carried with great care and pomp into the land of Canaan, and deposited with his fathers and wife Leah in Machpelah's cave. The example of Jacob is quoted by the first and the last of the minor prophets. Besides the frequent mention of his name in conjunction with the names of the other two patriarchs, there are distinct references to the events in the life of Jacob in four books of the New Testament.
 
-### Markdown
+# Translation in world languages
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/mondonomo/name-james/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
