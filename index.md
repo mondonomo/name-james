@@ -1,4 +1,6 @@
 ![image](/James.jpg)
+
+# Q&A about the given name James
 - Why is the name James so popular?
   - There are several reasons why the name James is so popular. One reason is that it is a translation of the name Jacob, which is a widespread name for boys. Another reason is that it is a Biblical name, and two of Jesus' apostles were named James. Finally, the name James has Scottish roots, and it became more popular when King James VI took the English throne in the 17th century.
 - How popular the name James was in England?
@@ -20,4 +22,6 @@
 - Which of the U.S. presidents were named James?
   - U.S. Presidents named James were James Madison, James Polk, James Buchanan, and James Monroe.
 - What are good siblings name for James?
-  -  Jacob could be confused with 'Jacobus' for James, and Jeremiah or Jeremy with Jerome, the name of a saint. The frequent use of the initial 'J' may be coincidental but it is  noticeable how often siblings were given these names and the impression is  that some parents were influenced by the alliteration.
+  - Jacob could be confused with 'Jacobus' for James, and Jeremiah or Jeremy with Jerome, the name of a saint. The frequent use of the initial 'J' may be coincidental but it is  noticeable how often siblings were given these names and the impression is  that some parents were influenced by the alliteration.
+- What are similar sounding names to James?
+  - Similar-sounding names are Aimes, Ames, Aymes, Dawes, Eames, Ermes, Fares, Hawes, Hayes▲, Jabes, Jabesh, Jabez, Jace▲, Jacen, Jacey, Jade, Jaden▼, Jader, Jae, Jael, Jalen▼, Jamael, Jamal▼, Jamar▼, Jamee, Jameel, Jamel▼, Jamell, Jamiel, Jamil, Jamin, Jamon, Janek, Janesh, Janos, Janus, Jaques, Jareb, Jared, Jarek, Jarel, Jaren, Jaris, Jase, Jasen, Jaxen, Jaye, Jiles, Jomei, Jones, Jules, Jyles, Mayes, Oakes, Oates, Ramses and Yates.
