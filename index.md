@@ -25,3 +25,5 @@
   - Jacob could be confused with 'Jacobus' for James, and Jeremiah or Jeremy with Jerome, the name of a saint. The frequent use of the initial 'J' may be coincidental but it is  noticeable how often siblings were given these names and the impression is  that some parents were influenced by the alliteration.
 - What are similar sounding names to James?
   - Similar-sounding names are Aimes, Ames, Aymes, Dawes, Eames, Ermes, Fares, Hawes, Hayes▲, Jabes, Jabesh, Jabez, Jace▲, Jacen, Jacey, Jade, Jaden▼, Jader, Jae, Jael, Jalen▼, Jamael, Jamal▼, Jamar▼, Jamee, Jameel, Jamel▼, Jamell, Jamiel, Jamil, Jamin, Jamon, Janek, Janesh, Janos, Janus, Jaques, Jareb, Jared, Jarek, Jarel, Jaren, Jaris, Jase, Jasen, Jaxen, Jaye, Jiles, Jomei, Jones, Jules, Jyles, Mayes, Oakes, Oates, Ramses and Yates.
+- What is phonetic spelling of James?
+  - IPA for the name James is /d͡ʒeɪmz/
