@@ -95,7 +95,7 @@
    - James in Manx is [Jamys](https://mondonomo.com/forename/Jamys).
 
 - What is translation of the name James in the Ukrainian language?
-   - James in Ukrainian is [Яков](https://mondonomo.com/forename/Яковs).
+   - James in Ukrainian is [Яков](https://mondonomo.com/forename/Яков).
 
 - What is translation of the name James in the Arabic language?
    - James in Arabic is [يعقوب](https://mondonomo.com/forename/يعقوب).
