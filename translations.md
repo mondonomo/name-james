@@ -5,22 +5,22 @@
    - James in French is Jacques.
 
 - What is translation of the name James in the Italian language?
-   - James in Italian is Giacomo.
+   - James in Italian is [Giacomo](https://mondonomo.com/forename/giacomo).
 
 - What is translation of the name James in the Danish language?
-   - James in Danish is Jakob.
+   - James in Danish is [Jakob]((https://mondonomo.com/forename/jakob).
 
 - What is translation of the name James in the Swedish language?
    - James in Swedish is Jakob.
 
 - What is translation of the name James in the German language?
-   - James in German is Jakobus.
+   - James in German is [Jakobus]((https://mondonomo.com/forename/jakobus).
 
 - What is translation of the name James in the Portuguese language?
-   - James in Portuguese is Tiago.
+   - James in Portuguese is [Tiago](https://mondonomo.com/forename/tiago).
 
 - What is translation of the name James in the Afrikaans language?
-   - James in Afrikaans is Jakobus.
+   - James in Afrikaans is [Jakobus](https://mondonomo.com/forename/jakobus).
 
 - What is translation of the name James in the Icelandic language?
    - James in Icelandic is Jakob.
@@ -29,118 +29,118 @@
    - James in Norwegian is Jakob.
 
 - What is translation of the name James in the Spanish language?
-   - James in Spanish is Jacobo.
+   - James in Spanish is [Jacobo]((https://mondonomo.com/forename/jacobo).
 
 - What is translation of the name James in the Tagalog language?
-   - James in Tagalog is Santiago.
+   - James in Tagalog is [Santiago](https://mondonomo.com/forename/santiago).
 
 - What is translation of the name James in the Maori language?
-   - James in Maori is Hemi.
+   - James in Maori is [Hemi](https://mondonomo.com/forename/hemi).
 
 - What is translation of the name James in the Esperanto language?
-   - James in Esperanto is Jakobo.
+   - James in Esperanto is [Jakobo](https://mondonomo.com/forename/jakobo).
 
 - What is translation of the name James in the Dutch language?
-   - James in Dutch is Jakobus.
+   - James in Dutch is [Jakobus](https://mondonomo.com/forename/jakobus).
 
 - What is translation of the name James in the Romanian language?
-   - James in Romanian is Iacov.
+   - James in Romanian is [Iacov](https://mondonomo.com/forename/iacov).
 
 - What is translation of the name James in the Slovenian language?
-   - James in Slovenian is Jakob.
+   - James in Slovenian is [Jakob]((https://mondonomo.com/forename/jakob).
 
 - What is translation of the name James in the Turkish language?
-   - James in Turkish is Yakup.
+   - James in Turkish is [Yakup](https://mondonomo.com/forename/yakup).
 
 - What is translation of the name James in the Indonesian language?
-   - James in Indonesian is Yakobus.
+   - James in Indonesian is [Yakobus](https://mondonomo.com/forename/yakobus).
 
 - What is translation of the name James in the Hungarian language?
-   - James in Hungarian is Jakab.
+   - James in Hungarian is [Jakab](https://mondonomo.com/forename/jakab).
 
 - What is translation of the name James in the Somali language?
-   - James in Somali is Yacquub.
+   - James in Somali is [Yacquub](https://mondonomo.com/forename/Yacquub).
 
 - What is translation of the name James in the Hebrew language?
-   - James in Hebrew is יעקב.
+   - James in Hebrew is [יעקב](https://mondonomo.com/forename/יעקב).
 
 - What is translation of the name James in the Czech language?
    - James in Czech is Jakub.
 
 - What is translation of the name James in the Chamorro language?
-   - James in Chamorro is Santiago.
+   - James in Chamorro is [Santiago](https://mondonomo.com/forename/Santiago).
 
 - What is translation of the name James in the Latvian language?
-   - James in Latvian is Jēkabs.
+   - James in Latvian is [Jēkabs](https://mondonomo.com/forename/Jēkabs).
 
 - What is translation of the name James in the Korean language?
-   - James in Korean is 야고보.
+   - James in Korean is [야고보](https://mondonomo.com/forename/야고보).
 
 - What is translation of the name James in the Albanian language?
-   - James in Albanian is Jakobi.
+   - James in Albanian is [Jakobi](https://mondonomo.com/forename/Jakobi).
 
 - What is translation of the name James in the Ewe language?
-   - James in Ewe is Yakobo.
+   - James in Ewe is [Yakobo](https://mondonomo.com/forename/Yakobo).
 
 - What is translation of the name James in the Croatian language?
-   - James in Croatian is Jakov.
+   - James in Croatian is [Jakov](https://mondonomo.com/forename/Jakov).
 
 - What is translation of the name James in the Serbian language?
    - James in Serbian is Jakov.
 
 - What is translation of the name James in the Estonian language?
-   - James in Estonian is Jakoobus.
+   - James in Estonian is [Jakoobus](https://mondonomo.com/forename/Jakoobus).
 
 - What is translation of the name James in the Manx language?
-   - James in Manx is Jamys.
+   - James in Manx is [Jamys](https://mondonomo.com/forename/Jamys).
 
 - What is translation of the name James in the Ukrainian language?
-   - James in Ukrainian is Яков.
+   - James in Ukrainian is [Яков](https://mondonomo.com/forename/Яковs).
 
 - What is translation of the name James in the Arabic language?
-   - James in Arabic is يعقوب.
+   - James in Arabic is [يعقوب](https://mondonomo.com/forename/يعقوب).
 
 - What is translation of the name James in the Russian language?
-   - James in Russian is Иакова.
+   - James in Russian is [Иаков](https://mondonomo.com/forename/Иаков).
 
 - What is translation of the name James in the Basque language?
-   - James in Basque is Iacques.
+   - James in Basque is [Iacques](https://mondonomo.com/forename/Iacques).
 
 - What is translation of the name James in the Lithuanian language?
-   - James in Lithuanian is Jokūbą.
+   - James in Lithuanian is [Jokūbą](https://mondonomo.com/forename/Jokūbą).
 
 - What is translation of the name James in the Latin language?
-   - James in Latin is Iacobus.
+   - James in Latin is [Iacobus](https://mondonomo.com/forename/Iacobus).
 
 - What is translation of the name James in the Thai language?
-   - James in Thai is ยากอบ.
+   - James in Thai is [ยากอบ](https://mondonomo.com/forename/ยากอบ).
 
 - What is translation of the name James in the Bulgarian language?
-   - James in Bulgarian is Яков.
+   - James in Bulgarian is [Яков](https://mondonomo.com/forename/Яков).
 
 - What is translation of the name James in the Amharic language?
    - James in Amharic is ያዕቆብ.
 
 - What is translation of the name James in the Catalan language?
-   - James in Catalan is Jaume.
+   - James in Catalan is [Jaume](https://mondonomo.com/forename/Jaume).
 
 - What is translation of the name James in the Finnish language?
-   - James in Finnish is Jaakob.
+   - James in Finnish is [Jaakob](https://mondonomo.com/forename/Jaakob).
 
 - What is translation of the name James in the Welsh language?
    - James in Welsh is Iago.
 
 - What is translation of the name James in the Faroese language?
-   - James in Faroese is Jákup.
+   - James in Faroese is [Jákup](https://mondonomo.com/forename/Jákup).
 
 - What is translation of the name James in the Irish language?
-   - James in Irish is Séamas.
+   - James in Irish is [Séamas](https://mondonomo.com/forename/Séamas).
 
 - What is translation of the name James in the Wolof language?
-   - James in Wolof is Yowaana.
+   - James in Wolof is [Yowaana](https://mondonomo.com/forename/Yowaana).
 
 - What is translation of the name James in the Japanese language?
-   - James in Japanese is ジェームズ.
+   - James in Japanese is [ジェームズ](https://mondonomo.com/forename/ジェームズ).
 
 - What is translation of the name James in the Slovak language?
    - James in Slovak is Jakub.
@@ -149,7 +149,7 @@
    - James in Polish is Jakub.
 
 - What is translation of the name James in the Gaelic language?
-   - James in Gaelic is Seumas.
+   - James in Gaelic is [Seumas](https://mondonomo.com/forename/Seumas).
 
 - What is translation of the name James in the Armenian language?
    - James in Armenian is Յակոբոս.
@@ -179,10 +179,10 @@
    - James in Bokmål Norwegian is Jakob.
 
 - What is translation of the name James in the Vietnamese language?
-   - James in Vietnamese is Trở.
+   - James in Vietnamese is [Trở](https://mondonomo.com/forename/Trở).
 
 - What is translation of the name James in the Greek language?
-   - James in Greek is Ιάκωβος.
+   - James in Greek is [Ιάκωβος](https://mondonomo.com/forename/Ιάκωβος).
 
 - What is translation of the name James in the Haitian language?
    - James in Haitian is Jak.
@@ -308,7 +308,7 @@
    - James in Corsican is Ghjàcumu.
 
 - What is translation of the name James in the Nepali language?
-   - James in Nepali is याकूब.
+   - James in Nepali is याकूब. 
 
 - What is translation of the name James in the Panjabi language?
    - James in Panjabi is ਯਾਕੂਬ.
@@ -323,4 +323,4 @@
    - James in Oriya is ଯାକୁବଙ୍କ ପତ୍ର.
 
 - What is translation of the name James in the Chinese language?
-   - James in Chinese is 雅各书.
+   - James in Chinese is [雅各书](https://mondonomo.com/forename/雅各书).
